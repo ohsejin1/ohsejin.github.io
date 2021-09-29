@@ -1,1 +1,0 @@
-# ohsejin.github.io
